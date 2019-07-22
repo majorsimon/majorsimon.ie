@@ -1,1 +1,0 @@
-# majorsimon.ie
